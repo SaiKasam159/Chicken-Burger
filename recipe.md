@@ -1,0 +1,2 @@
+Put some ground chicken, garlic, green onions, paprika salt and pepper in a bowl and mix. This will be the burger. Make some patties and fry in olive oil 5 minutes on each side. 
+Now it is time to start building the burger. Get a hamburger bun and put some lettuce on it. The add coleslaw and your chicken burger. A bit of avacado, tomato and jalepenos on top then finish off with another bun. Delish!

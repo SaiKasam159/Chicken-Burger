@@ -1,0 +1,2 @@
+Chicken burgers sometimes get a bad rap. They're suuuper lean, which can sometimes read as boring.
+But I love chicken burgers and this recipes shows you how to make ones that leave your mouthwatering for more. Spiced with smoked paprika and loaded with crunchy, bright coleslaw, these burgers will leave your mouth in awe.
